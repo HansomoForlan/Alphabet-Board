@@ -33,4 +33,3 @@ We may update these Terms of Service from time to time. Continued use of the app
 
 **Thank you for using My Magical Alphabet Board!**
 
-For any questions, you may contact us at: [hansniyi@gmail.com]
